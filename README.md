@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About vicpra.com:
 Hello friends, my name is Akshat Rajput, I am the founder of Vicpra, Vicpra gives you the best platform to success in your life.
 
 
